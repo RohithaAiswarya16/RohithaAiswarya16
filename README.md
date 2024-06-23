@@ -1,4 +1,4 @@
-# Bonjour👋 I'm Rohitha Aiswarya Dora Hanumanthu
+# Namaste 🙏 I'm Rohitha Aiswarya Dora Hanumanthu
 
 # 💫 About Me:
 - 🔭 Currently studying Computer Science and Engineering at SRM University, Amaravati.
